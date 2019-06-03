@@ -11,8 +11,13 @@ To provide Leadership / Teamwork Skills and develop brighter and better IT Perso
 ---
 Thanks for viewing me!
 
+
 Club Name: Women 4Tech
+
 Theme URL: https://women4tech.github.io
+
 Author: Memunat Manzuma
+
 Phone:	08160730725
+
 Site: https://zaarab.com.ng
